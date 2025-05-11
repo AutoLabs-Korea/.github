@@ -1,1 +1,1 @@
-![AutoLabs](https://github.com/user-attachments/assets/c18394e1-e3fe-4808-9ffd-dc2716cc894f)
+![AutoLabs](https://github.com/user-attachments/assets/77679f7c-b1c8-4cbf-80a8-e719ba5b9582)
